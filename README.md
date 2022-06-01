@@ -6,9 +6,9 @@
 
 * Barbara hamza
 
-* Zejli zakaria (group B)
+* Zejly zakaria (group B)
 
-* Othman assrar
+* Assrar Othman
 
 ## Presentation General :
 
