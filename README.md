@@ -8,7 +8,7 @@
 
 * Zejly zakaria (group B)
 
-* Assrar Othman
+* Asserrar Othman
 
 ## Presentation General :
 
